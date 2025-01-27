@@ -1,6 +1,6 @@
 # 柠萌宝机场官网地址
 
-最新地址：[柠萌宝.com](https://hd.xn--pbt38zg4v.com/#/register?code=O6Kbo3v4)
+最新地址：[柠萌宝.com](https://new.xn--pbt38zg4v.com/#/register?code=41ZzTXWM)
 
 ## 柠萌宝介绍
 
